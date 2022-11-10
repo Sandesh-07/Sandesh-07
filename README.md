@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Sandesh-07
-- 👀 I’m interested in leaning new information
 - 🌱 I’m currently studying
 
 
