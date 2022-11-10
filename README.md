@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sandesh-07
-- 🌱 I’m currently studying
+- 🌱 I’m currently studying in 4th year, B.E in CSE 
 
 
 <!---
